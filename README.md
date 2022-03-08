@@ -1,2 +1,2 @@
 # icon-kamnop
-Welcom to Kamnopislam if iCenterOfficial
+Welcom to Kamnopislam of iCenterOfficial
